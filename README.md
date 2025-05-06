@@ -48,7 +48,7 @@ PDF version of my resume is included for context.
 ## 🔗 About Me
 
 📧 Email: jden30@msn.com  
-🔗 LinkedIn: [linkedin.com/in/jeff-dennis](https://linkedin.com/in/jeff-dennis)  
+🔗 LinkedIn: [linkedin.com/in/jeff-dennis](https://linkedin.com/in/jeff-dennis-6b0a74a)  
 🔬 Clearance: TS/SCI (last active 2013)
 
 ---
